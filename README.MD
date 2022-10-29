@@ -17,7 +17,7 @@
   
 ## About This Bot
 
-<b><a href="https://www.github.com/Aadhi000" title="Dollow">Follow Me For Updates</a></b>
+<b><a href="https://www.github.com/Lokimuruga" title="Dollow">Follow Me For Updates</a></b>
 
 ## Up to 4GB files Supported ♥️
 
